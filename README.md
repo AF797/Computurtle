@@ -1,3 +1,3 @@
 # Computurtle
 
-![Computurtle](https://github.com/user-attachments/assets/6bbb4d5d-f6f8-4361-b3fd-2c7d315fd589)
+![Computurtle](https://github.com/user-attachments/assets/05e778fe-2ff2-4d14-93fd-7d26c69dc760)
